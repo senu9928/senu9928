@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @senu9928
+- 👋 Hi, I’m senuri liyanage 
 - 👀 I’m interested in devolopment 
 - 🌱 I’m currently learning @SLIIT 
 - 
